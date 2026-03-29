@@ -1,0 +1,1 @@
+# Tier 3 Portuguese TERA-CHAD lilDafty has flown to U.S and GLITCHMAXXED in order to HUNT down TimeDeo and engage in a GLITCH-OFF to avenge TraoX_ after the BRUTAL glitch detection incident that took place last week in #war-room 😳
